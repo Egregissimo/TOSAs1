@@ -1,5 +1,0 @@
-1123257
-funghi
-prosciutto
-carciofi
-capperi
